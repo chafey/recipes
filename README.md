@@ -3,7 +3,7 @@
 
 ## Sour Cream Potatoes
 
-Potatoe dish you can make ahead of time.  Great with grilled meat like skewered beef.  
+Tasty potatoe dish you can make ahead of time.  Great with grilled meat like skewered beef.  
 
 Serves: 8-10 
 
@@ -13,14 +13,14 @@ Serves: 8-10
 * 1 bunch green onions
 * 2 cups sour cream
 * 1 cup half and half, sweet cream or milk
-* 1-2 tbsp poppy seeds
+* 2 tbsp poppy seeds
 * salt and pepper to taste
 * 3/4 pound grated cheddar cheese
 
 ### Instructions
 
 - parboil potatoes in large pot, cool to room temperature
-- Grate potatoes 
+- grate potatoes 
 - chop onions
 - Mix sourcream, cream, onions, potatoes and 1/2 of cheese, salt, pepper and poppy seeds
 - Put in a 13x9 pan
@@ -36,19 +36,21 @@ Serves: 8-10
 
 ### Ingredients
 
-* 1 lb hamburger (browned)
-* 1/2 lb bacon, cooked and chopped up
+* 1 lb ground beef
+* 1/2 lb bacon
 * 1/2 cup brown sugar
 * 1/4 cup molasses
 * 1/2 cup ketchip
 * 1 tsp salt
 * 1 tsp mustard
 * 28 oz Bush's Country Style Beans
-* 16 oz Bush's Red Beans, drained
-* 16 oz Bush's Great Northern Beans, drained
+* 16 oz Bush's Red Beans
+* 16 oz Bush's Great Northern Beans
 
 ### Instrucions
 - Brown the ground beef
+- Cook the bacon and chop it up
+- Drain and wash/rinse the red beans and great northern beans
 - Mix all ingrediants together into a slow cooker or large dutch oven
 - Cook in oven @325 for an hour, or on low in slow cooker for at least an hour
 
@@ -56,7 +58,7 @@ Serves: 8-10
 
 Great with cucumber salad, baked beans
 
-Serves: 6-8
+Serves: 4-5
 
 ### Ingredients
 
@@ -90,7 +92,7 @@ Serves: 8-10
 
 ### Ingredients
 * 2 english cucumbers
-* 1 medium red onion sliced into halfs
+* 1 medium red onion 
 * 1/4 cup Red wine vinegar
 * 1/4 cup extra virgin olive oil
 * tbsp sugar
@@ -100,6 +102,7 @@ Serves: 8-10
 ### Instructions
 * slice cucumbers thinly using mandolin
 * Put cucumber slices in a large colinder and sprinkle with salt.  Let sit for 20 minutes to "sweat" or remove moisture.  Wash salt off cucumnbers and dry using a paper towel
-* Mix all ingrediants into bowl and refridgerate.  
-* Let mixture marinade at least 2 hours or up to 24 hours (the longer the better).
+* Cut onion into halves (cut onion in half and then slice each half)
+* Mix all ingredients into bowl and refrigerate.  
+* Let mixture marinade at least 2 hours, preferrably 24 hours
 * Leftovers will keep for 5 more days in the refrigerator

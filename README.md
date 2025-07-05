@@ -101,7 +101,10 @@ Serves: 8-10
 
 ### Instructions
 * slice cucumbers thinly using mandolin
-* Put cucumber slices in a large colinder and sprinkle with salt.  Let sit for 20 minutes to "sweat" or remove moisture.  Wash salt off cucumnbers and dry using a paper towel
+* Sweat cucumber slices
+  * Put cucumber slices in a large and sprinkle with salt.  
+  * Let sit for 20 minutes to remove moisture.  
+  * Wash salt off cucumnbers and dry using a paper towel
 * Cut onion into halves (cut onion in half and then slice each half)
 * Mix all ingredients into bowl and refrigerate.  
 * Let mixture marinade at least 2 hours, preferrably 24 hours

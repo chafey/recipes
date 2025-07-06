@@ -19,7 +19,7 @@ Serves: 8-10
 
 ### Instructions
 
-- parboil potatoes in large pot, cool to room temperature
+- parboil potatoes in large pot (e.g. boil for 15 minutes), cool to room temperature
 - grate potatoes 
 - chop onions
 - Mix sourcream, cream, onions, potatoes and 1/2 of cheese, salt, pepper and poppy seeds
@@ -95,17 +95,17 @@ Serves: 8-10
 * 1 medium red onion 
 * 1/4 cup Red wine vinegar
 * 1/4 cup extra virgin olive oil
-* tbsp sugar
+* 1 tbsp sugar
 * 1 tsp sea salt
 * 1/2 tsp black bepper
 
 ### Instructions
-* slice cucumbers thinly using mandolin
+* Slice cucumbers thinly using mandolin
 * Sweat cucumber slices
-  * Put cucumber slices in a large and sprinkle with salt.  
+  * Put cucumber slices in a large collander and sprinkle with salt.  
   * Let sit for 20 minutes to remove moisture.  
   * Wash salt off cucumnbers and dry using a paper towel
-* Cut onion into halves (cut onion in half and then slice each half)
+* Slice onion into halves (cut onion in half and then slice each half)
 * Mix all ingredients into bowl and refrigerate.  
 * Let mixture marinade at least 2 hours, preferrably 24 hours
 * Leftovers will keep for 5 more days in the refrigerator
